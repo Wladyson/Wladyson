@@ -1,2 +1,2 @@
-- 👋 ola, sou wladyssone voce esta no meu perfil.
+- 👋 ola, sou wladysson e voce esta no meu perfil.
 
